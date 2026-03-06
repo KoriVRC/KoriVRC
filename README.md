@@ -23,4 +23,3 @@ I'm a 19-year-old streamer, furry artist, and gamer (she/her). Proudly pansexual
 Feel free to reach out on Twitter or Discord if you're into furry art, osu!, or just want to chat. Looking forward to connecting!
 
 ![GitHub Stats](https://github-readme-stats.vercel.app/api?username=korivrc&show_icons=true&theme=radical)  
-*(Replace 'korivrc' with your actual GitHub username if different.)*
