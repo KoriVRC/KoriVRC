@@ -2,7 +2,7 @@
 
 ![Kori's Avatar](https://pbs.twimg.com/profile_images/1935136154934034432/OwMt1h_g.jpg)
 
-I'm a 19-year-old streamer, furry artist, and gamer (she/her). Proudly pansexual and living life to the fullest! I'm a retired music artist with a passion for creating banners, mapping in osu!mania, and streaming my adventures. Soon moving to France with my partner @Furred_enzomtp. 💜
+I'm a 20-year-old streamer, furry artist, and gamer (she/her). Proudly pansexual and living life to the fullest! I'm a retired music artist with a passion for creating banners, mapping in osu!mania, and streaming my adventures. Soon moving to France with my partner @Furred_enzomtp. 💜
 
 ## What I Do
 - **Gaming**: Expert osu!mania player and mapper. Love rhythm games and hosting tournaments!
