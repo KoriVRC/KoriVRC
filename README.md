@@ -18,7 +18,7 @@ I'm a 20-year-old streamer, furry artist, and gamer (she/her). Proudly pansexual
 - **osu! Profile**: [osu.ppy.sh/users/15519602](https://osu.ppy.sh/users/15519602)
 - **Discord**: korivrc (Hit me up for collabs or chats!)
 - **Affiliate**: Use my discount at [advanced.gg/discount/korivrc](https://advanced.gg/discount/korivrc) for gaming gear.
--- **Others**: My other socials at [korivrc.enzomtp.party](https://korivrc.enzomtp.party)!
+- **Others**: My other socials at [korivrc.enzomtp.party](https://korivrc.enzomtp.party)!
 
 ## Get in Touch
 Feel free to reach out on Twitter or Discord if you're into furry art, osu!, or just want to chat. Looking forward to connecting!
